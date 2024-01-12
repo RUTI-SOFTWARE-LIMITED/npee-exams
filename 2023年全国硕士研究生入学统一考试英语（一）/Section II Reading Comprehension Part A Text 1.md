@@ -32,3 +32,38 @@ Glenn Branch, the centre's deputy director, cautions that setting state-level sc
 Another issue is that while climate change is well integrated into some subjects and at some ages——such as earth and space sciences in high schools——it is not as well represented in curricula for younger children and in subjects that are more widely taught, such as biology and chemistry. It is also less prominent in many social studies courses.
 
 Branch points out that, even if a growing number of official guidelines and textbooks reflect scientific consensus on climate change, unofficial educational materials that convey more slanted perspectives are being distributed to teachers, They include materials sponsored by energy industry associations.
+
+21. In Paragraph 1, the weather in Texas is mentioned to
+
+A. forecast a policy shift in Texas schools.
+B. stress the consequences of climate change.
+C. indicate the atmosphere at the board meeting.
+D. draw the public's attention to energy shortages.
+
+22. What does Quinn think of Hardy?
+
+A. She exaggerates the existing panic.
+B. She denies the value of scientific work.
+C. She shows no concern for pre-teens.
+D. She expresses self-contradictory views.
+
+23. The study mentioned in Paragraph 5 shows that
+
+A. climate education is insufficient at state public schools.
+B. policymakers have little drive for science education.
+C. Texas is reluctant to rewrite its science textbooks.
+D. environmental teaching in some states lacks supervision.
+
+24. According to Branch, state-level science standards in the US
+
+A. call for regular revision.
+B. require urgent application.
+C. have limited influence.
+D. cater to local needs.
+
+25. It is implied in the last paragraph that climate change teaching in some schools
+
+A. agrees to major public demands.
+B. reflects teachers' personal bias.
+C. may misrepresent the energy sector.
+D. can be swayed by external forces.
